@@ -1,0 +1,1 @@
+# TrendCraft-AI
